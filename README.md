@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bruzethegreat
+- 👋 Hi, I’m Ankit Kumar Verma 
 - 👀 I’m interested in web3, metaverse, space, rockets and building community.
 - 🌱 I’m currently learning Java and C.
 - 📫 You can reach me at bruzethegreat999@gmail.com
